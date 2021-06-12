@@ -16,3 +16,5 @@ You can contact me through email, which is 22000036@handong.edu. Thank you for v
 
 # 5. Video (Youtube)
 ↓ Click the link below
+
+https://youtu.be/M7n5Uo0DQT4
